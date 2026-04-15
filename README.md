@@ -5,7 +5,7 @@
 📍 New Cairo, Egypt  
 📧 [mahagabr523@gmail.com](mailto:mahagabr523@gmail.com)  
 📞 +20 101 591 5491  
-🔗 LinkedIn | GitHub  
+🔗 LinkedIn: https://www.linkedin.com/in/maha-gabr-ab83a03a8/  
 
 ---
 
