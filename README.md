@@ -6,7 +6,7 @@
 📧 [mahagabr523@gmail.com](mailto:mahagabr523@gmail.com)  
 📞 +20 101 591 5491  
 🔗 LinkedIn: https://www.linkedin.com/in/maha-gabr-ab83a03a8/  
-🌐 Portfolio: mahaprotfolio.netlify.app  
+🌐 Portfolio: https://mahaprotfolio.netlify.app 
 
 ---
 
